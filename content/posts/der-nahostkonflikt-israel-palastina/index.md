@@ -3,6 +3,7 @@ title = "Der Nahostkonflikt Israel - Palästina"
 date = "2024-06-10"
 draft = false
 pinned = false
+tags = ["deutsch", "reportage"]
 +++
 Ein Konflikt, der sich über mehrere Jahrzehnte erstreckt und eine ereignisreiche Geschichte hat. Was ist die Ursache davon und wie geht es heute den betroffenen Personen?
 
