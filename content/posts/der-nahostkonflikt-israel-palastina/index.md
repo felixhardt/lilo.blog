@@ -10,15 +10,11 @@ Von Christopher Shergold und Felix Hardt (M26f)
 
 ![Taylor Brandon, Unsplash: https://unsplash.com/photos/blue-and-white-flag-on-pole-Y8r0RTNrIWM, (abgerufen am 06.05.2024)](photo-1599340695274-f8a2f344174d.avif)
 
-
-
 ### **Ein jahrzehntelanger Konflikt flammt auf**
 
 7. Oktober 2023. Hunderte Raketen werden aus dem Gazastreifen abgefeuert und schlagen in Israel ein. Hunderte von Zivilisten kommen ums Leben. Tausende werden verletzt. Dieser Angriff ist das jüngste Kapitel des jahrzehntelangen israelisch-palästinensischen Konflikts. 
 Hilla, eine 16-jährige Israelin, ist völlig fassungslos über die Situation: Der Schock, dass so etwas tatsächlich passiert ist, dass so viele Menschen, die sie kannte, entführt und ermordet wurden, und die anhaltende Angst vor dem, was als Nächstes kommt.
 Dieser Angriff war nicht das erste Mal, dass diese beiden Gebiete einen Konflikt hatten. Um die ganze Geschichte zu verstehen, müssen wir die Zeit um die 100 Jahre zurückdrehen.
-
-
 
 ### **Ein 100-jähriger Konflikt**
 
@@ -29,8 +25,6 @@ Das Land Palästina kam unter den Druck des Plans der westlichen Mächte, dort e
 Nach dem Zweiten Weltkrieg und dem Holocaust wuchs die internationale Sympathie für die zionistische Sache und gipfelte im Teilungsplan der Vereinten Nationen von 1947, der die Aufteilung Palästinas in einen jüdischen und einen arabischen Staat vorsah. Der Plan wurde jedoch von den arabischen Führern abgelehnt, was zum Arabisch-Israelischen Krieg von 1948 und der anschliessenden Gründung des Staates Israel führte.
 Der folgende israelisch-palästinensische Konflikt war im Laufe der Jahrzehnte von zahlreichen Kriegen, Aufständen und Friedensinitiativen geprägt. Der Sechs-Tage-Krieg von 1967 führte zur Besetzung des Westjordanlands, des Gazastreifens und Ostjerusalems durch Israel, was die Spannungen mit der palästinensischen Bevölkerung weiter verschärfte.
 Der Oslo-Friedensprozess der 1990er Jahre bildete den Rahmen für Friedensverhandlungen zwischen Israel und der Palästinensischen Befreiungsorganisation (PLO), die zur Einrichtung der Palästinensischen Autonomiebehörde und einer begrenzten palästinensischen Selbstverwaltung in Teilen der besetzten Gebiete führten. Die nachfolgenden Bemühungen um ein endgültiges Friedensabkommen sind jedoch nicht vorangekommen, da sie durch Fragen wie Grenzen, Siedlungen, Sicherheit und den Status von Jerusalem behindert wurden.
-
-
 
 ### Auswirkung auf das tägliche Leben in Israel
 
@@ -43,15 +37,11 @@ In Hillas Umkreis habe fast jeder dieselbe Meinung über den Konflikt. Aber in d
 Wäre sie in einer Machtposition, würde sie wollen, dass alle miteinander reden und sich einander verstehen könnten. Sie würde versuchen, auf friedliche Weise eine Lösung zu finden. Für die Zukunft befürchtet Hilla, dass sie vielleicht keine Lösung für den Konflikt finden werden. Sie habe aber viel Hoffnung, dass ihr Land und die Palästinenser gemeinsam einen Weg finden würden, der für beide Parteien akzeptabel sei und welcher zum Frieden für alle führen solle. 
 Hilla hat nebst Hoffnung auch Befürchtungen für die Zukunft. «Ich habe Angst um meine Freunde, meine Familie und für die Leute, die ich liebe, die in der Nähe des Gaza-Streifens wohnen.», erzählt sie. Sie habe ausserdem Angst, dass die Menschen nur an den Hass glauben und einander nicht zuhören wollen würden. 
 
-
-
 ### Der Konflikt in den Medien
 
 In den sozialen Medien ist laut Hilla das Thema des Israel-Palästina-Konflikts wie ein Minenfeld von Falschinformationen. Sie schildert: «Die sozialen Medien geben einen unrealistischen und nicht objektiven Blickpunkt auf die Situation. Es werden Meinungen wiedergeben und nicht Fakten.» Wenn man in den sozialen Medien etwas zu dem Thema glauben wolle, müsse man alles mehrmals überprüfen, da es mehr Lügen als Wahrheiten und mehr Meinungen als Fakten geben würde. 
 Die israelischen Medien würden, so Hilla, vieles übertreiben, damit die Leute weiterschauen würden. Dennoch findet Hilla die Nachrichten, im Gegensatz zu den sozialen Medien, recht glaubwürdig, da sie meint, die Nachrichten würden immerhin berichten, was der aktuelle Stand sei. Zur Frage, ob das israelische Fernsehen parteiisch sei, antwortet Hilla: «Es kommt sehr auf den Sender an – manche davon sind einseitig während anderer beider Seiten des Konflikts zeigen.» Die jüdischen und muslimischen Gemeinschaften seien viel besser verbunden, und würden sich nicht so sehr gegenseitig hassen, wie es die sozialen Medien porträtieren.
 Dass alle Juden, die in Israel leben, alle Araber hassen würden, höre Hilla von vielen Menschen. Sie sagt: «Ich will persönlich darauf eingehen und sagen, dass ich viele muslimische, christliche und jüdische Freunde habe, die ich alle aus tiefstem Herzen gern habe.»
-
-
 
 ### Auswirkung bis in die Schweiz
 
@@ -62,8 +52,6 @@ Natürlich gibt es noch weitere Gründe, aber der eigentliche Grund für antisem
 ![Quelle: Schweizerischer Israelischer Gemeindebund SIG, antisemitismusbericht2023 (swissjews.ch), (abgerufen am 05.05.2024)](wwdq.jpg)
 
 ![](box.jpg)
-
-
 
 ### Wie sieht es für die Zukunft aus?
 
