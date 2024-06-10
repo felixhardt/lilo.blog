@@ -12,7 +12,7 @@ Von Christopher Shergold und Felix Hardt (M26f)
 
 ### **Ein jahrzehntelanger Konflikt flammt auf**
 
-7. Oktober 2023. Hunderte Raketen werden aus dem Gazastreifen abgefeuert und schlagen in Israel ein. Hunderte von Zivilisten kommen ums Leben. Tausende werden verletzt. Dieser Angriff ist das jüngste Kapitel des jahrzehntelangen israelisch-palästinensischen Konflikts. 
+7.Oktober 2023. Hunderte Raketen werden aus dem Gazastreifen abgefeuert und schlagen in Israel ein. Hunderte von Zivilisten kommen ums Leben. Tausende werden verletzt. Dieser Angriff ist das jüngste Kapitel des jahrzehntelangen israelisch-palästinensischen Konflikts. 
 Hilla, eine 16-jährige Israelin, ist völlig fassungslos über die Situation: Der Schock, dass so etwas tatsächlich passiert ist, dass so viele Menschen, die sie kannte, entführt und ermordet wurden, und die anhaltende Angst vor dem, was als Nächstes kommt.
 Dieser Angriff war nicht das erste Mal, dass diese beiden Gebiete einen Konflikt hatten. Um die ganze Geschichte zu verstehen, müssen wir die Zeit um die 100 Jahre zurückdrehen.
 
